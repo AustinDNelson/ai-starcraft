@@ -28,4 +28,4 @@ I think that the most important thing I learned about this myself is that I am v
 
 Final Thoughts 
 
-If I were to do this over again knowing what I know now, I would set my expectations far, far lower.  
+If I were to do this over again knowing what I know now, I would set my expectations far, far lower for the time I had.
